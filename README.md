@@ -31,7 +31,7 @@
 
 ### 📫 Get in touch  
 - 💼 [LinkedIn](https://www.linkedin.com/in/simone-leuzzi-205244193/)  
-- 📷 [Instagram](https://www.instagram.com/_simo.l._/) *(motorcycle trips & photography)*  
+- 📷 [Instagram](https://www.instagram.com/_simo.l._/) *(trips & photography)*  
 - ✉️ Email: **s.leuzzi23@gmail.com**  
 
 <!---
